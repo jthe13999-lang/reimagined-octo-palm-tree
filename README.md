@@ -1,2 +1,2 @@
-# reimagined-octo-palm-tree
+# Ivan Jason Legi
 IVAN JASON LEGI (240211060108) -TUGAS PROYEK 1 HTML
